@@ -8,7 +8,7 @@ Artificial Intelligence, Blockchain, Automation or anything tech: we breakdown t
 
 ## Why Co-learning Lounge ?
 
-When every other learning community you join is a place where people spam about themselves, their work, events, what better can you visualise? (The engagement astonishes me the most.)
+When every other learning community you join is a place where people spam about themselves, their work, events, what better can you visualize? (The engagement astonishes me the most.)
 
 The major problem with 99% of the online or offline communities is that they don’t really ensure a safe and secure place for elites to share their knowledge and expertise with young and passionate mind. It’s pretty simple, You don’t feel like home.
 
